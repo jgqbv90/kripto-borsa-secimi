@@ -1,0 +1,1 @@
+# kripto-borsa-secimi
